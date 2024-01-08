@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **aryamanvijay18@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/15BfIT459hrFLcnexdBj13Cuoz4pgElP1/view?usp=sharing](https://drive.google.com/file/d/15BfIT459hrFLcnexdBj13Cuoz4pgElP1/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1AzEVMqzPDI6SrHYQAC-SstgCae7rBGnh/view?usp=sharing]
 
 - ⚡ Fun fact **I'm good at discussing business.**
 
